@@ -2,7 +2,7 @@
 
 **None** of these are my personal projects. This is but a file repo to find deleted versions.
 
-**IF YOURE AN AUTHOR, AND WANT THESE GONE LET ME KNOW, IM ON THE DC "officialanexity", I WILL WITHOUT ANY ARGUEMENT DELETE ALL FILES**
+**IF YOURE AN AUTHOR, AND WANT THESE GONE LET ME KNOW, MY DC IS "officialanexity", I WILL WITHOUT ANY ARGUEMENT DELETE ALL FILES**
 
 # Assetto Mods inoffical Backup
 

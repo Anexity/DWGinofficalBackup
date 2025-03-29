@@ -9,5 +9,5 @@ DWG is not my personal project. This is but a file repo to find deleted versions
 
 # Links
 350z : https://mega.nz/file/hIBRXBQL#iIRPGwsRYtSFOQwcw_gBaNDqX4pgIz7oEkneQfpV64Q
-![DWG 350z]()
+![DWG 350z](https://github.com/Anexity/DWGinofficalBackup/blob/main/images/350z.jpg)
 

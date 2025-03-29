@@ -1,17 +1,17 @@
-# <p align="center"> !IMPORTANT! </p>
+!IMPORTANT!
 
 **None** of these are my personal projects. This is but a file repo to find deleted versions.
 
 **IF YOURE AN AUTHOR, AND WANT THESE GONE LET ME KNOW, IM ON THE DC "officialanexity", I WILL WITHOUT ANY ARGUEMENT DELETE ALL FILES**
 
-# <p align="center"> Assetto Mods inoffical Backup </p>
+# Assetto Mods inoffical Backup
 
 Starting with just deleted DWG Mods.
 
 **All of these are from my personal harddrive, I will pinky promise theres no MalCode in it, however please never take anyones word for this and always
 scan things you get from unofficial sources, because as far as you can assume, I could be lying to you!**
 
-# <p align="center"> Links </p>
+# Links
 
 ## 350z
 
